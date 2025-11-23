@@ -55,7 +55,7 @@ PC with LT Spice Software
 
 
 ## RESULT:
-![Uploading WhatsApp Image 2025-11-22 at 22.58.10_e1c7d199.jpg…]()
+![WhatsApp Image 2025-11-22 at 22 58 10_9bf334cb](https://github.com/user-attachments/assets/5d074350-b0ce-4424-98c6-7a55ee78be16)
 
 >
 
